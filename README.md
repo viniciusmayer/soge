@@ -1,0 +1,2 @@
+# soge
+Socioeconomia e Geopolitica
